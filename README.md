@@ -5,4 +5,5 @@
 
 ![picture2](https://github.com/shahriar00/Threads-Apps-UI/assets/70763173/a672c74d-10ef-4019-833d-f03d847aa5d9)
 
+![picture3](https://github.com/shahriar00/Threads-Apps-UI/assets/70763173/2969dc63-dccf-4e3c-b20b-ae13f1693374)
 
